@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ChaitanyaDesaij
-- 👀 I’m interested in Data Science, Data Analytic and cloud computing
+- 👀 I’m interested in Data Science, Data Analytic and Cloud Computing
 - 🌱 I’m currently looking for oppurtunties to use my skills
 - 📫 You can reach me on (+61)0466831513 or chaaitanyadesai.j@gmail.com
